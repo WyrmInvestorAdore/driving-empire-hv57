@@ -1,4 +1,4 @@
-#  
+#  driving empire Scripts advanced is the best driving empire Script, featuring silent aim and no cooldown. Safe and powerful for all your needs.
 
 
 
